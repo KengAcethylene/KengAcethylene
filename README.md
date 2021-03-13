@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KengAcethylene
-- 👀 I’m interested in LoL Esports(LCK), Japanesse culture and Linux!!!
+- 👀 I’m interested in LoL Esports(LCK), Japanesse cultures and Linux!!!
 - 🌱 I’m currently learning computer engineering at Chulalongkorn University, Thailand. I am the third year student.
 - 📫 How to reach me
   - [FACEBOOK](https://www.facebook.com/chanchai.rattanasiwakoon/)
