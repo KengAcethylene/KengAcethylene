@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KengAcethylene
 - 👀 I’m interested in LoL Esports(LCK), Japanesse cultures, Blockchain and Linux!!!
 - 🌱 I’m currently learning computer engineering at Chulalongkorn University, Thailand. I am the third year student.
-- 📫 How to reach me
+- 📫 Social Account
   - [FACEBOOK](https://www.facebook.com/chanchai.rattanasiwakoon/)
   - [INSTRAGRAM](https://www.instagram.com/keng_acethylene/)
   - [TWITTER](https://twitter.com/keng_acethylene)
